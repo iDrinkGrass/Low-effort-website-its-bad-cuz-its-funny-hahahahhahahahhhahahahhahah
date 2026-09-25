@@ -7,4 +7,4 @@ Yes, it is made to look bad. Ummmm, cause its funny ig.
  - HTML
  - CSS
 
-
+visit or DONT at https://idrinkgrass.github.io/Low-effort-website-its-bad-cuz-its-funny-hahahahhahahahhhahahahhahah/
